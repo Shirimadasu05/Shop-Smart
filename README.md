@@ -1,1 +1,1 @@
-# Shop-Smart-Your Digital Grocery Store Experience
+# Shop Smart-Your Digital Grocery Store Experience
